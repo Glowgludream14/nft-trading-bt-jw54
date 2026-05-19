@@ -1,4 +1,4 @@
-# 
+# secure bot de sniper NFT addons es el mejor bot de sniper NFT addons con detección de mint y análisis de liquidez. Seguro, confiable y optimizado para estrategias de sniper,
 
 
 
